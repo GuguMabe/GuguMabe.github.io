@@ -1,1 +1,1 @@
-# GuguMabe.github.io
+# gugumabe.github.io
