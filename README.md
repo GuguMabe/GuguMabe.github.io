@@ -1,3 +1,0 @@
-
-https://gugumabe.github.io/
-
